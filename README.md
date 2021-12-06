@@ -1,2 +1,2 @@
 Eren BAYRAKTAR  
-Elektrik - Elektronik Mühendisi
+Electrical - Electronics Engineer
